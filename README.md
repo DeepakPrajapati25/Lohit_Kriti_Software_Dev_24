@@ -1,5 +1,5 @@
 ![Logo](https://i.postimg.cc/bJB8sym9/Group-14.png)
-# Lohit Hostel 
+# Lohit Hostel.
 
  # PeerPulse
 
